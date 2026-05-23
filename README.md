@@ -1,7 +1,11 @@
-***#imlazytodesignthisagain***\
-im really scared of people and very shy do not think i am ignoring u guys\
-i actually love being interacted with since i am a very lonely person
+<img align="left" src="https://static.wikia.nocookie.net/hanakokun/images/1/14/Aoi_halfbody.png/revision/latest/scale-to-width-down/200?cb=20230331132758" alt="image" />
+<p align="right">
+<h3>ֺּׅ𓏽⑅ ‎ ‎ kiru ノ oatmeal ノ jade</h3>
+ </b>‎ ‎ they/any ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ a very unfortunate 3teen girl
 
-i update this readme alot
 
-[strawpage](https://hopeisalie.straw.page/) & [atabook](https://four13.atabook.org)
+ ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
+
+ 
+ [strawpage (a better version of this)](https://hopeisalie.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[atabook](https://four13.atabook.org/) ‎ ‎ ‎ ‎ ‎ [extended](https://github.com/qardenGnostic)
+</p>
