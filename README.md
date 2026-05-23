@@ -4,8 +4,8 @@
  </b>‎ ‎ they/any ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ a very unfortunate 3teen girl
 
 
- ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
+ ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 
  
- [strawpage (a better version of this)](https://hopeisalie.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[atabook](https://four13.atabook.org/) ‎ ‎ ‎ ‎ ‎ [extended](https://github.com/qardenGnostic)
+ <sub>[strawpage (a better version of this)](https://hopeisalie.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[atabook](https://four13.atabook.org/) ‎ ‎ ‎ ‎ ‎ [extended](https://github.com/qardenGnostic)</sub>
 </p>
