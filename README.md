@@ -5,7 +5,7 @@
 
 
  
- <sub>[strawpage (a better version of this)](https://hopeisalie.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[atabook](https://four13.atabook.org/) ‎ ‎ ‎ ‎ ‎ [extended](https://github.com/qardenGnostic)</sub>
+ <sub>[strawpage (a better version of this PLS LOOK AT IT)](https://polarcubbies.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[atabook](https://four13.atabook.org/) ‎ ‎ ‎ ‎ ‎ [extended](https://github.com/qardenGnostic)</sub>
 
 
  <img width="357" height="53" alt="image" src="https://github.com/user-attachments/assets/e98aea20-3dbb-4ca0-b8ae-08fc29666213" />
