@@ -9,5 +9,7 @@
  
  <sub>[strawpage (a better version of this)](https://hopeisalie.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[atabook](https://four13.atabook.org/) ‎ ‎ ‎ ‎ ‎ [extended](https://github.com/qardenGnostic)</sub>
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31o3uc7zuj6tlyj5k7tswqfzmbju&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=dbdbdb&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+ <img width="357" height="53" alt="image" src="https://github.com/user-attachments/assets/e98aea20-3dbb-4ca0-b8ae-08fc29666213" />
+
 </p>
