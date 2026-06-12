@@ -1,12 +1,7 @@
-<img align="left" src="https://www.image2url.com/r2/default/images/1780041331959-ec9ebaa8-5581-4a26-b0f8-00ad3eed4a77.png" alt="image" />
-<p align="right">
-<h3>ֺּׅ𓏽⑅ ‎ ‎ kiru ノ jade</h3>
- </b>‎ ‎ they/any ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ a very unfortunate 3teen girl
+<p align="center">
+  <img width="322" height="50" src="https://static.wikitide.net/nullscapewiki/d/d8/Kolona_Text.gif">
+</p>
 
-
- 
- <sub>[about me, please read!](https://polarcubbies.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[atabook](https://four13.atabook.org/)
-
- <img width="357" height="53" alt="image" src="https://github.com/user-attachments/assets/e98aea20-3dbb-4ca0-b8ae-08fc29666213" />
-
+<p align="center">
+  kiru or oatmeal, they/any.
 </p>
