@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  i love u kolona from nullscape
+  i love blue and red from aus
 </p>
 
 my artdump, updates are expected
