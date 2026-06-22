@@ -1,15 +1,11 @@
 <p align="center">
-  <img width="322" height="50" src="https://static.wikitide.net/nullscapewiki/d/d8/Kolona_Text.gif">
+  kiru or gil, they/any.
 </p>
 
 <p align="center">
-  kiru or oatmeal, they/any.
+  <sub><3</sub>
 </p>
 
 <p align="center">
-  i love kolona nullscape
-</p>
-
-<p align="center">
-  <img width="208" height="364" src="https://www.image2url.com/r2/default/images/1781410997463-121d4f0d-ab99-47a3-b4be-7ce61f2bf69a.webp">
+  <img width="500" height="500" src="https://www.image2url.com/r2/default/images/1782123039898-693d23eb-1100-481b-9685-7719a5569cc6.webp">
 </p>
