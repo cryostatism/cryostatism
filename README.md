@@ -3,9 +3,9 @@
 </p>
 
 <p align="center">
-  <sub><3</sub>
+  <sub>cr: candiedevil on X</sub>
 </p>
 
 <p align="center">
-  <img width="500" height="500" src="https://www.image2url.com/r2/default/images/1782123039898-693d23eb-1100-481b-9685-7719a5569cc6.webp">
+  <img width="300" height="400" src="https://pbs.twimg.com/media/F4imQwYbAAATYXB?format=jpg&name=4096x4096">
 </p>
