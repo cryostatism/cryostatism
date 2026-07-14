@@ -3,9 +3,5 @@
 </p>
 
 <p align="center">
-  <sub>cr: candiedevil on X</sub>
-</p>
-
-<p align="center">
-  <img width="300" height="400" src="https://pbs.twimg.com/media/F4imQwYbAAATYXB?format=jpg&name=4096x4096">
+  <img width="277" height="130" src="https://www.image2url.com/r2/default/images/1784031944221-1474c0f6-21c8-4eb8-bedb-c50c560dbd1b.webp">
 </p>
