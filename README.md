@@ -1,5 +1,5 @@
 <p align="center">
-  kiru or gil, they/any.
+  kiru or mika, they/any.
 </p>
 
 <p align="center">
