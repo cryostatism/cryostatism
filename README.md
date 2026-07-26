@@ -1,5 +1,5 @@
 <p align="center">
-  kiru or mika, they/any.
+  kiru, mika or cosmo, they/any.
 </p>
 
 <p align="center">
