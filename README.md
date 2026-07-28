@@ -9,5 +9,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ [mika](https://mimic.fandom.com/wiki/Mika) coping link ok
 
 <p align="center">
-  i rlly like among us & the mimic & 2p sprunki more than regular sprunki ewwiie
+  minor, 18+ iwc
 </p>
