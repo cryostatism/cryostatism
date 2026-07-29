@@ -9,5 +9,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ [mika](https://mimic.fandom.com/wiki/Mika) coping link ok
 
 <p align="center">
-  minor, 18+ iwc
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31o3uc7zuj6tlyj5k7tswqfzmbju&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
 </p>
