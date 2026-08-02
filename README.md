@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="277" height="150" src="https://media.discordapp.net/attachments/808820615972257813/1521607726227263571/image.png?ex=6a5bdca0&is=6a5a8b20&hm=71f56e941d932b1f4d80128e96b90cd6388bd255fd8caf0127cdf92a77fefc40&=&format=webp&quality=lossless&width=1003&height=520">
+  <img width="277" height="150" src="https://media.discordapp.net/attachments/808820615972257813/1532489185473331242/image.png?ex=6a6fac46&is=6a6e5ac6&hm=1c116d7a19e095225ae6c2a733ecb7595de649e1c9e5ea2f15083aae47f83c62&=&format=webp&quality=lossless&width=1024&height=576">
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ILYYYYY ILYSM [MIKA](https://mimic.fandom.com/wiki/Mika)
