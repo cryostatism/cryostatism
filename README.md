@@ -7,7 +7,7 @@ $\color{#872633}{\text{minorㅤ◡◡ㅤ18+ iwc.}}$
 </p>
 
 <p align="center">
-$\color{#872633}{\text{꒰ ㅤㅤe4ㅤ461ㅤ4w5ㅤso/sxㅤenfpㅤㅤ꒱}}$
+$\color{#872633}{\text{꒰ ㅤㅤJEAN-CLAUDE'S NO1 FANㅤㅤ꒱}}$
 </p>
 
 
