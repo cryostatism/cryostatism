@@ -1,5 +1,5 @@
 <p align="center">
-$\color{#872633}{\text{kiru ◞ㅤroomㅤㅤthey ◝ㅤany}}$
+$\color{#872633}{\text{forget ◞ㅤroomㅤㅤthey ◝ㅤany}}$
 </p>
 
 <p align="center">
