@@ -1,8 +1,9 @@
 <p align="center">
-<sub>the crew enthusiast (especially bloom)</sub>
+  <img src="https://github.com/user-attachments/assets/aaeb1c78-54ab-4279-b013-08aa5aaad280" alt="Animated Demo">
+</p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/aaeb1c78-54ab-4279-b013-08aa5aaad280" alt="Animated Demo">
+<sub>currently listening to</sub>
 </p>
 
 <p align="center">
