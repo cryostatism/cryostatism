@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<sub>currently listening to</sub>
+<sub>i hgate typology. oooooo</sub>
 </p>
 
 <p align="center">
