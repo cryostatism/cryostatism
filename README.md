@@ -1,9 +1,9 @@
 <p align="center">
-  <img width="350" height="200" src="https://static.wikia.nocookie.net/robloxmugen/images/f/f1/Mortis_Teaser_1.png/revision/latest?cb=20230605132716">
+  <img width="235" height="288" alt="aw" src="https://github.com/user-attachments/assets/0dd405f1-355a-4af0-869e-feef1b34e000" />
 </p>
 
 <p align="center">
-  <sub>rigor mortis.</sub>
+  <sub>i am not into uusmp or lifesteal smp, sadly.</sub>
 </p>
 
 <p align="center">
