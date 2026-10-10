@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <sub>i am not into uusmp or lifesteal smp, sadly.</sub>
+  <sub>the only mcyt i watch is grian sadly cause im not into minecraft that much</sub>
 </p>
 
 <p align="center">
