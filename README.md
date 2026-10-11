@@ -5,6 +5,10 @@
 <p align="center">
   <sub>the only mcyt i watch is grian sadly cause im not into minecraft that much. yes i only know life series.</sub>
 </p>
+<p align="center">
+  <sub>im still catching up with life series again after a few years of not watching it.</sub>
+</p>
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
