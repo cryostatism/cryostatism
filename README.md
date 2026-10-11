@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <sub>the only mcyt i watch is grian sadly cause im not into minecraft that much</sub>
+  <sub>the only mcyt i watch is grian sadly cause im not into minecraft that much. yes i only know life series.</sub>
 </p>
 
 <p align="center">
