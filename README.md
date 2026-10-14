@@ -8,6 +8,9 @@
 <p align="center">
   <sub>im still catching up with life series again after a few years of not watching it.</sub>
 </p>
+<p align="center">
+  <sub>i am planning to watch vsmp and evosmp.</sub>
+</p>
 
 
 <p align="center">
