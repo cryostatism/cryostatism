@@ -3,13 +3,10 @@
 </p>
 
 <p align="center">
-  <sub>the only mcyt i watch is grian sadly cause im not into minecraft that much. yes i only know life series.</sub>
+  <sub>im not interested in uusmp</sub>
 </p>
 <p align="center">
-  <sub>im still catching up with life series again after a few years of not watching it.</sub>
-</p>
-<p align="center">
-  <sub>i am planning to watch vsmp and evosmp.</sub>
+  <sub>i am planning to watch vsmp and evosmp, catching up with life series</sub>
 </p>
 
 
