@@ -9,7 +9,7 @@
 forgetㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤthey he any.
 </p>
 <p align="center">
-little desert duo fanㅤㅤㅤㅤㅤㅤ[read](https://pronouns.cc/LIFTEDSOUL) 4 info about me
+little desert duo fanㅤㅤㅤㅤㅤㅤplaceholder
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
