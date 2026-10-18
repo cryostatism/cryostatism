@@ -9,7 +9,7 @@
 forgetㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤthey he any.
 </p>
 <p align="center">
-little desert duo fanㅤㅤㅤㅤㅤㅤplaceholder
+at hermit hill(mostly) or docksㅤㅤㅤㅤㅤㅤread prns.cc 4 info about me
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
