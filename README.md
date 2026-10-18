@@ -1,13 +1,4 @@
-<p align="center">
-  <img width="235" height="288" alt="aw" src="https://github.com/user-attachments/assets/0dd405f1-355a-4af0-869e-feef1b34e000" />
-</p>
-
-<p align="center">
-  <sub>im not interested in uusmp</sub>
-</p>
-<p align="center">
-  <sub>i am planning to watch vsmp and evosmp, catching up with life series</sub>
-</p>
+HUGE WIP HOLD ONNN
 
 
 <p align="center">
