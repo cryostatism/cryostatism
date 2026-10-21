@@ -16,3 +16,7 @@ at hermit hill(mostly) or docksㅤㅤㅤㅤㅤㅤread prns.cc 4 info about me
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31o3uc7zuj6tlyj5k7tswqfzmbju&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=53b14f">
   </a>
 </p>
+
+<p align="center">
+current status: fragile and sensitive stomach, very much physically tired.
+</p>
