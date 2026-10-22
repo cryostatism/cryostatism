@@ -17,6 +17,7 @@ at hermit hill(mostly) or docksㅤㅤㅤㅤㅤㅤread prns.cc 4 info about me
   </a>
 </p>
 
-<p align="center">
-current status: fragile and sensitive stomach, very much physically tired.
+<img align="left" src="https://www.image2url.com/r2/default/images/1792658526877-332cf05e-baec-4aae-b1a2-38e428036568.webp" alt="image" />
+<p align="left">
+left heartfall after being sick for like a friday and a tue-thursday bro, I WILL GET BACK ON TRACK. I WILL. ive been losing my shittt in this game its so full of surprises EVEN THE FIRST ROUTE EEK c:!!!!!! imm happy this game exists i can actualaly play something else now other than the same games everyday cause im not really allowed to download anything big in my shared pc
 </p>
