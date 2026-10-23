@@ -6,7 +6,7 @@
   <img width="450" height="247" src="https://www.image2url.com/r2/default/images/1792302092953-170fa18b-3bd0-4c7a-bfd4-b2a7c0d805c0.png">
 </p>
 <p align="center">
-forgetㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤthey he any.
+grayㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤthey he any.
 </p>
 <p align="center">
 at hermit hill(mostly) or docksㅤㅤㅤㅤㅤㅤread prns.cc 4 info about me
