@@ -17,5 +17,8 @@ at hermit hill(mostly) or docksㅤㅤㅤㅤㅤㅤread prns.cc 4 info about me
   </a>
 </p>
 <p align="center">
-  <img width="287" height="119" src="https://github.com/user-attachments/assets/3b4b1ccb-51b5-4534-bc2c-422688e5fc99">
+i also draw
+</p>
+<p align="center">
+  <img width="368" height="312" src="https://github.com/user-attachments/assets/d1a12e30-9e70-403f-8d47-a38b497b6bfa">
 </p>
