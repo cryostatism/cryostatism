@@ -23,5 +23,5 @@ i also draw
   <img width="368" height="312" src="https://github.com/user-attachments/assets/d1a12e30-9e70-403f-8d47-a38b497b6bfa">
 </p>
 <p align="center">
-i dont do commissioms but i draw for free cause im nice amazing
+i dont do commissioms but i draw for free cause im nice and amazing but it takes a wholel ot of procrastination
 </p>
