@@ -22,3 +22,6 @@ i also draw
 <p align="center">
   <img width="368" height="312" src="https://github.com/user-attachments/assets/d1a12e30-9e70-403f-8d47-a38b497b6bfa">
 </p>
+<p align="center">
+  <img width="368" height="96" src="https://github.com/user-attachments/assets/c8bddcf9-0ec0-4c83-a511-731c940ebeb2">
+</p>
