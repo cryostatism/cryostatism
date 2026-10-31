@@ -9,6 +9,9 @@
 grayㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤthey he any.
 </p>
 <p align="center">
+the grian / pearl by the lamppost
+</p>
+<p align="center">
 at hermit hill(mostly) or docksㅤㅤㅤㅤㅤㅤread prns.cc 4 info about me
 </p>
 <p align="center">
