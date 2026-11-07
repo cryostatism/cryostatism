@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="450" height="247" src="https://www.image2url.com/r2/default/images/1792302092953-170fa18b-3bd0-4c7a-bfd4-b2a7c0d805c0.png">
+  <img width="460" height="247" src="https://github.com/user-attachments/assets/85892418-ee44-438b-b8e1-15223fc5cef2">
 </p>
 <p align="center">
 grayㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤthey he any.
@@ -18,7 +18,4 @@ at hermit hill(mostly) or docksㅤㅤㅤㅤㅤㅤread prns.cc 4 info about me
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31o3uc7zuj6tlyj5k7tswqfzmbju&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=53b14f">
   </a>
-</p>
-<p align="center">
-  <img width="779" height="85" src="https://github.com/user-attachments/assets/3699ddfa-9b1a-48fc-82e9-476cb82d347a">
 </p>
