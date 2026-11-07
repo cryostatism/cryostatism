@@ -1,5 +1,5 @@
 <p align="center">
-<sub>ac: @shaororuu on X</sub>
+<sub>ac: @strawbeerytart on X</sub>
 </p>
 
 <p align="center">
