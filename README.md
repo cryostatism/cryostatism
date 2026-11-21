@@ -6,7 +6,7 @@
   <img width="460" height="247" src="https://github.com/user-attachments/assets/85892418-ee44-438b-b8e1-15223fc5cef2">
 </p>
 <p align="center">
-grayㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤthey he any.
+grayㅤ𓈒ㅤkiruㅤㅤㅤ♡ㅤㅤㅤhe they any.
 </p>
 <p align="center">
 the lifer by the lamppost
